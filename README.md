@@ -1,1 +1,1 @@
-# Brain-o-maina
+# Brain-o-mania
